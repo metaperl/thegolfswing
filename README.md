@@ -8,3 +8,9 @@ Mike Malaska [Pivot Points For Power](https://youtu.be/JuOMHbLKHUc?t=57s)
 > What we have here is a golf ball with a line at the equator. And I've put a dot on the 4th groove up from the bottom on this club head. The game of golf is connecting this dot with this line.
 
 Mike Malaska [I Feel Your Pain #5: Pro Distance And De-Lofting](https://youtu.be/PrnYZPsV4KY?t=1m18s)
+
+# Chipping
+
+> The loft of the club gets the ball in the air. So chipping is just a bigger version of putting. Only now your putter instead of having a flat face has a lofted face. 
+
+Mike Malaska [Short Game: Chipping and Pitching](https://youtu.be/GicbhxobjUc?t=2m)
