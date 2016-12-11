@@ -1,5 +1,4 @@
 # The Golf Swing
-Quotes on the Golf Swing
 
 > You're making a pivot. If you watch this handle (of the golf club), it comes down and slows down while the club head speeds up. Then the handle speeds up again. That's a pivot. That's a lever. 
 
@@ -9,8 +8,14 @@ Mike Malaska [Pivot Points For Power](https://youtu.be/JuOMHbLKHUc?t=57s)
 
 Mike Malaska [I Feel Your Pain #5: Pro Distance And De-Lofting](https://youtu.be/PrnYZPsV4KY?t=1m18s)
 
-# Chipping
+## Chipping
 
 > The loft of the club gets the ball in the air. So chipping is just a bigger version of putting. Only now your putter instead of having a flat face has a lofted face. 
 
 Mike Malaska [Short Game: Chipping and Pitching](https://youtu.be/GicbhxobjUc?t=2m)
+
+## Pitching
+
+> What happens to most people is they start to sway and everything is moving all over the place. This is nothing more than an arm swing and pivot. So if you just stand on your left foot and you use your right toe to balance you, not for weight, and now we are going to make swings.
+
+Mike Malaska [https://youtu.be/GicbhxobjUc?t=10m21s](Short Game: Chipping and Pitching)
