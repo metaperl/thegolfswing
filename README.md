@@ -1,5 +1,9 @@
 # The Golf Swing
 
+> The ball is not on the ground. You are not hitting a ball that is on the ground. There's a ball on the end of your club and you're flicking it off.
+
+David Lee, [Gravity Golf](https://gravitygolf.com/)
+
 > You're making a pivot. If you watch this handle (of the golf club), it comes down and slows down while the club head speeds up. Then the handle speeds up again. That's a pivot. That's a lever. 
 
 Mike Malaska [Pivot Points For Power](https://youtu.be/JuOMHbLKHUc?t=57s)
