@@ -1,5 +1,9 @@
 # The Golf Swing
 
+> Does anyone have trouble getting too far to the inside? We do that when we start back by turning our shoulders. The swing should make the turn, not the turn make the swing.
+
+Jim Flick, [Stephanie Wei - Lesson from Jim Flick](https://youtu.be/-LGtF-o9Jy8?t=1m35s)
+
 > The ball is not on the ground. You are not hitting a ball that is on the ground. There's a ball on the end of your club and you're flicking it off.
 
 David Lee, [Gravity Golf](https://gravitygolf.com/)
@@ -19,6 +23,10 @@ Mike Malaska [I Feel Your Pain #5: Pro Distance And De-Lofting](https://youtu.be
 Mike Malaska [Short Game: Chipping and Pitching](https://youtu.be/GicbhxobjUc?t=2m)
 
 ## Pitching
+
+> All I need to do is position myself so that my arms can fall
+
+Jim Flick [Jim Flick Lesson](https://youtu.be/_VTYq01XmV0?t=1m)
 
 > What happens to most people is they start to sway and everything is moving all over the place. This is nothing more than an arm swing and pivot. So if you just stand on your left foot and you use your right toe to balance you, not for weight, and now we are going to make swings.
 
