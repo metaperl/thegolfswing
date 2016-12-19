@@ -16,6 +16,17 @@ Mike Malaska [Pivot Points For Power](https://youtu.be/JuOMHbLKHUc?t=57s)
 
 Mike Malaska [I Feel Your Pain #5: Pro Distance And De-Lofting](https://youtu.be/PrnYZPsV4KY?t=1m18s)
 
+## The Backswing
+
+
+> Sometimes I will put a towel underneath my arms and feel that my upper body is starting my swing.
+
+Smyle Kaufman [One-on-One With Smylie Kaufman: Creating A Perfect Backswing](https://youtu.be/ctP_h5S4xgQ?t=46s)
+
+> I like to feel that my upper body is pushing the club back rather than my body trying to start it. When I get to the top of the backswing, I want to feel I'm getting into my back right hip.
+
+Smyle Kaufman [One-on-One With Smylie Kaufman: Creating A Perfect Backswing](https://youtu.be/ctP_h5S4xgQ?t=1m10s)
+
 ## Chipping
 
 > The loft of the club gets the ball in the air. So chipping is just a bigger version of putting. Only now your putter instead of having a flat face has a lofted face. 
