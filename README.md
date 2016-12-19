@@ -1,8 +1,5 @@
 # The Golf Swing
 
-> Does anyone have trouble getting too far to the inside? We do that when we start back by turning our shoulders. The swing should make the turn, not the turn make the swing.
-
-Jim Flick, [Stephanie Wei - Lesson from Jim Flick](https://youtu.be/-LGtF-o9Jy8?t=1m35s)
 
 > The ball is not on the ground. You are not hitting a ball that is on the ground. There's a ball on the end of your club and you're flicking it off.
 
@@ -18,6 +15,9 @@ Mike Malaska [I Feel Your Pain #5: Pro Distance And De-Lofting](https://youtu.be
 
 ## The Backswing
 
+> Does anyone have trouble getting too far to the inside? We do that when we start back by turning our shoulders. The swing should make the turn, not the turn make the swing.
+
+Jim Flick, [Stephanie Wei - Lesson from Jim Flick](https://youtu.be/-LGtF-o9Jy8?t=1m35s)
 
 > Sometimes I will put a towel underneath my arms and feel that my upper body is starting my swing.
 
