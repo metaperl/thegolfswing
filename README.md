@@ -26,6 +26,10 @@ Mike Malaska [Pivot Points For Power](https://youtu.be/JuOMHbLKHUc?t=57s)
 
 Mike Malaska [I Feel Your Pain #5: Pro Distance And De-Lofting](https://youtu.be/PrnYZPsV4KY?t=1m18s)
 
+## Posture
+
+
+
 ## The Grip
 
 > Do you notice as you lighten the grip pressure on the club, the club goes from feeling like a lead rod where you have no sensation of the end of the club to this very lightweight stick with a heavy head attached to it. 
