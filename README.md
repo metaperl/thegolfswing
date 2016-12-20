@@ -28,7 +28,11 @@ Mike Malaska [I Feel Your Pain #5: Pro Distance And De-Lofting](https://youtu.be
 
 ## Posture
 
+> No up and down, no forward and back
 
+> The swing is a circle with the spine as an axis
+
+> Take a golf club down your back. As you bend over, stick your butt out.
 
 ## The Grip
 
@@ -51,6 +55,11 @@ Smyle Kaufman [One-on-One With Smylie Kaufman: Creating A Perfect Backswing](htt
 Smyle Kaufman [One-on-One With Smylie Kaufman: Creating A Perfect Backswing](https://youtu.be/ctP_h5S4xgQ?t=1m10s)
 
 ## Chipping
+
+> weight is on front foot. ball is placed off back toe so the hands stay in front of the ball. Chipping is a pendulum motion. You want to imagine the club and the (front) arm form a straight line 
+
+Wally Armstrong [How to Use the WallyMade Golf Power Hanger]()
+
 
 > The loft of the club gets the ball in the air. So chipping is just a bigger version of putting. Only now your putter instead of having a flat face has a lofted face... here's what we are going to do: I'm going to roll the ball along the ground so I'm feeling what it feels like to have the shaft lean forward, catch the ball on the face and have it roll towards its target.
 
