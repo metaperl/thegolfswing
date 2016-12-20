@@ -1,5 +1,9 @@
 # The Golf Swing
 
+> The golf swing is just a baseball swing on a tilt
+
+Wally Armstrong [Wally Armstrong Clinics in Action](https://youtu.be/JE-MskVJDl0?t=15m24s)
+
 > Focus fully on the clubhead and its weight - the path of that heavy circle carving through the air. And just try to pass it through the ball as precisely as you can. 
 
 Ron Sisson [Golf Channel Instructor Search Audition - Ron Sisson, Real Swing Golf](https://youtu.be/8w00dSxmFaw?t=9m30s)
