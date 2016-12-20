@@ -44,7 +44,7 @@ Smyle Kaufman [One-on-One With Smylie Kaufman: Creating A Perfect Backswing](htt
 
 ## Chipping
 
-> The loft of the club gets the ball in the air. So chipping is just a bigger version of putting. Only now your putter instead of having a flat face has a lofted face. 
+> The loft of the club gets the ball in the air. So chipping is just a bigger version of putting. Only now your putter instead of having a flat face has a lofted face... here's what we are going to do: I'm going to roll the ball along the ground so I'm feeling what it feels like to have the shaft lean forward, catch the ball on the face and have it roll towards its target.
 
 Mike Malaska [Short Game: Chipping and Pitching](https://youtu.be/GicbhxobjUc?t=2m)
 
