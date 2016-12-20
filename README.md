@@ -4,6 +4,10 @@
 
 Wally Armstrong [Wally Armstrong Clinics in Action](https://youtu.be/JE-MskVJDl0?t=15m24s)
 
+> The golf swing is made of two motions. One is rotating in a circle around the spine (no up and down, no forward and back) and the wrists cocking to 90 degrees in one direction and then the other.
+
+Wally Armstrong [How to Use the WallyMadeGolf PowerBall](https://youtu.be/faTfze8gA8k?t=5s)
+
 > Focus fully on the clubhead and its weight - the path of that heavy circle carving through the air. And just try to pass it through the ball as precisely as you can. 
 
 Ron Sisson [Golf Channel Instructor Search Audition - Ron Sisson, Real Swing Golf](https://youtu.be/8w00dSxmFaw?t=9m30s)
