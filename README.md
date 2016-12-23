@@ -1,5 +1,9 @@
 # The Golf Swing
 
+> Give the tire a nice hit. Now step over to the golf ball and hit it.
+
+Henry Cotton [Hitting With The Hands The Henry Cotton Golf Lesson](https://youtu.be/W9KIukhkmBg?t=18s)
+
 > The golf swing is just a baseball swing on a tilt
 
 Wally Armstrong [Wally Armstrong Clinics in Action](https://youtu.be/JE-MskVJDl0?t=15m24s)
