@@ -1,10 +1,14 @@
+# The Golf Swing
 
-# George Knudson "Natural Golf Swing"
+## George Knudson "Natural Golf Swing"
 > I remember the first time I felt centrifugal force and inertia (centrifugal force is the outward force acting on a body that is rotating in a circle around a central point; inertia is the property by which matter continues in its existing state of rest or uniform motion unless that state is changed by external force). The effect generated a powerful and accurate swing, yet I hadn’t a thing to do with it except allow it to happen. All I did was set myself in motion. Until then, I’d only had glimpses of a pure swing. I’d thought I had to do so much to swing a golf club, but suddenly in one swing I felt like the golf club had swung itself. There was no resistance. I sensed that the club was travelling on a pure, undisturbed path, and that I wasn’t doing a thing consciously with my hands and arms to take it there. It was a feeling of totally letting go. It felt wonderful.
 
 Knudson, George; Rubenstein, Lorne. Natural Golf Swing (Kindle Locations 141-147). McClelland & Stewart. Kindle Edition. 
 
-# The Golf Swing
+## [Wally Armstrong Clinics in Action](https://youtu.be/JE-MskVJDl0?t=5m18s)
+
+> Bobby Jones used to think about the golf club head as the weight on the end of a wire.
+
 
 > Give the tire a nice hit. Now step over to the golf ball and hit it.
 
