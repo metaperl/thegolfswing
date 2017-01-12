@@ -72,6 +72,12 @@ Smyle Kaufman [One-on-One With Smylie Kaufman: Creating A Perfect Backswing](htt
 
 Smyle Kaufman [One-on-One With Smylie Kaufman: Creating A Perfect Backswing](https://youtu.be/ctP_h5S4xgQ?t=1m10s)
 
+## The Slot
+
+### Wally Armstrong ["Circle to the right"]((https://youtu.be/XeZDOqQ5lxk)
+
+> in the golf swing you **dont** want the club to come around go towards the hole, you have to learn to swing out to the right.
+
 ## Chipping
 
 > weight is on front foot. ball is placed off back toe so the hands stay in front of the ball. Chipping is a pendulum motion. You want to imagine the club and the (front) arm form a straight line 
