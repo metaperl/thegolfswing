@@ -74,7 +74,7 @@ Smyle Kaufman [One-on-One With Smylie Kaufman: Creating A Perfect Backswing](htt
 
 ## The Slot
 
-### Wally Armstrong ["Circle to the right"]((https://youtu.be/XeZDOqQ5lxk)
+### Wally Armstrong ["Circle to the right"](https://youtu.be/XeZDOqQ5lxk)
 
 > in the golf swing you **dont** want the club to come around go towards the hole, you have to learn to swing out to the right.
 
