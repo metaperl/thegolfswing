@@ -30,3 +30,14 @@ Nothing
 Just follow the right elbow as it bends. The club will follow that.
 
 ### When should wrists cock in the backswing
+No comment on this
+
+### When should clubhead speed be the greatest
+No comment, but downswing should be faster than backswing
+
+### What should they do after a bad shot
+Reflect and observe it.
+
+### What should they do after a round of golf
+No comment.
+
