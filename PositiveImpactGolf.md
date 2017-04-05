@@ -6,3 +6,16 @@
 * Rhythm
 * Reflect
 
+## What would you tell a beginner about ...
+
+### His head
+
+I would not say anything about this
+
+### Their eyes
+No comment except to reflect on the results of the swing when it is done
+
+### Their arms
+
+#### In the backswing
+Left arm straight on the way back, right elbow bending initiates the backswing
