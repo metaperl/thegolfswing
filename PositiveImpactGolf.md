@@ -19,3 +19,14 @@ No comment except to reflect on the results of the swing when it is done
 
 #### In the backswing
 Left arm straight on the way back, right elbow bending initiates the backswing
+
+#### Through and after impact
+Elbow straightens. Hands are in front of the ball at impact.
+
+### Their front foot
+Nothing
+
+### The line the club should take in the first foot of the backswing
+Just follow the right elbow as it bends. The club will follow that.
+
+### When should wrists cock in the backswing
