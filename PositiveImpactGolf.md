@@ -41,3 +41,10 @@ Reflect and observe it.
 ### What should they do after a round of golf
 No comment.
 
+# Score yourself from 0 to 10 on the following points
+* swinging with no effort 4
+* playing with a relaxed swing 4
+* rhythm 4
+* balance at end of swing 3
+* get through to full finish 2
+
